@@ -7,6 +7,8 @@ meu nome é MataGol
 
 ![](https://media.tenor.com/tP7v1dUc2y0AAAAd/ronaldinho-ronaldinho-gaucho.gif)
 
+![](https://media.tenor.com/4oMm1K2Pcc0AAAAd/ronaldo-funny.gif)
+
 ![](https://media.tenor.com/nfZi0s3ANcMAAAAC/soccer-soccer4life.gif)
 
 [melhor GK da história](https://youtube.com/shorts/43jzEK9RpRQ?si=cxmhtIhkWPAOZVhW)
