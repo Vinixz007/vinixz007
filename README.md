@@ -2,7 +2,7 @@
 
 meu nome é MataGol
 
--vou mostrar diversos conteúdos diversificados neste perfil
+-vou mostrar diversos conteúdos diversificados neste perfil sobre
 
 
 ![](https://media.tenor.com/tP7v1dUc2y0AAAAd/ronaldinho-ronaldinho-gaucho.gif)
@@ -15,3 +15,6 @@ meu nome é MataGol
 
 
 [milior](https://youtube.com/shorts/pl47oIab2x0?si=osblf_Kn27gWY4oA)
+
+
+[mãe tem café](https://youtube.com/shorts/o91EepgijEY?si=3wbs5y1MenkOPJ1n)
