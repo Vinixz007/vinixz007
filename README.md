@@ -1,6 +1,6 @@
 ### Boas vinda ao perfil 
 
-meu nome é MataGol
+meu nome é Chapeleiro Maluco
 
 -vou mostrar diversos conteúdos diversificados neste perfil
 
